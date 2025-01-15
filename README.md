@@ -1,1 +1,0 @@
-# cocopure_practice
